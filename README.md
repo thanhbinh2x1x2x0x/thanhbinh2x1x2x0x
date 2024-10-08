@@ -2,9 +2,7 @@
 - 👀 I’m interested in listening music and my favourite singer is Ha Anh Tuan
 - 🌱 I’m currently learning computer scien at Ho Chi Minh City University of Technology
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me?
-+Discord: thanhbinh2x1x
-+
+- 📫 How to reach me? Discord: thanhbinh2x1x
 - 😄 Pronouns: APOLLO
 - ⚡ Fun fact: ...
 
